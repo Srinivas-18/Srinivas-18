@@ -2,7 +2,7 @@
 - 👀 I’m interested in cyber security
 - 🌱 I’m currently learning programing 
 - 💞️ I’m looking to collaborate on cyber
-- 📫 How to reach me through Mali:iamlakshmisrinivas2005@gmail.com
+- 📫 you can reach me through Mail:iamlakshmisrinivas2005@gmail.com
 - 😄 Pronouns: none 
 - ⚡ Fun fact: There were 2,365 cyberattacks in 2023 with 343,338,964 victims.
 

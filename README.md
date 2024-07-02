@@ -1,9 +1,6 @@
 - 👋 Hi, I’m @Srinivas-18
 - 👀 I’m interested in cyber security
-- 🌱 I’m currently learning programing 
-- 💞️ I’m looking to collaborate on cyber
 - 📫 you can reach me through Mail:iamlakshmisrinivas2005@gmail.com
-- 😄 Pronouns: he/him
 - ⚡ Fun fact: There were 2,365 cyberattacks in 2023 with 343,338,964 victims.
 
 <!---

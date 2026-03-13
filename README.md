@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Srinivas-18
 - 👀 I’m interested in Cyber security
-- 📫 you can reach me through Mail:iamlakshmisrinivas2005@gmail.com
+- 📫 you can reach me through Mail: iamlakshmisrinivas2005@gmail.com
 - ⚡ Fun fact: If you ever feel useless, just remember there’s a “Caps Lock” key on your keyboard that proudly exists in 2025… and still gets used mostly by people accidentally yelling “hELLO.”
 
 ## 🌐 Socials:
